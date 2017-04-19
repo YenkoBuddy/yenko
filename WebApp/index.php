@@ -1,4 +1,4 @@
 
 hello
-Bongani is an idiot
+Tshego likes things
 This is kwane testing
