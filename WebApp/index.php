@@ -1,4 +1,4 @@
 
 hello
-i am bongs
+Bongani is an idiot
 This is kwane testing
